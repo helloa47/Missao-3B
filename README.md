@@ -10,4 +10,7 @@ O restaurante de Nico, o Sabores da Terra, estava lotado na noite de sexta-feira
 Nico olhou para a panela e sentiu um frio na barriga. O estoque de trufas frescas tinha acabado de acabar por causa do movimento da semana. Ele tinha apenas duas opções pa slvar  a reputação do restaurante.
 
 Aternativa 1; Improvisar com óleo de trufa sintético
-Sem tempopara conseguir o ingrediente
+Sem tempopara conseguir o ingrediente fresco. Ele finaliza o risoto com capricho e manda para a mesa.
+
+Alternativa 2:Mudar a receita e ir falar com o cliente
+Nico decide não mascarar o prato. Ele s
